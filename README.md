@@ -34,4 +34,4 @@ Free design support and full technical package creation.
 
 Premium printing technologies including patented HYPER SC and high-density branding.
 
-For corporate orders and product details, explore the Conbello Textile Women's Leggings Collection.
+For corporate orders and product details, explore the [Conbello Textile Women's Leggings Collection](https://www.conbello.com/custom-wholesale-leggings-manufacturer).
